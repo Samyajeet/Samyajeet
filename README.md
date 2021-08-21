@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Samyajeet
+- 👀 I’m interested in Physics
